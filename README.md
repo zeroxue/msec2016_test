@@ -7,7 +7,7 @@ Good Good Study,day day up !!
 
 ## change by Liuwanshu
 
-## change by chenyanyan
+## change by chenyanyan 陈岩岩
 
 Keep it simple and stupid！
 
